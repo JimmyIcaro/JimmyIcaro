@@ -9,13 +9,7 @@
 
 **HOBBIES...**<br>
 
-➤Tocar guitarra (aprendendo); <br>
-➤Aprender algo novo(e passar raiva tentando aprender);<br>
-➤Andar de bicicleta (com música e um friozinho fica perfeito);<br>
-➤Passar raiva jogando com amigos (melhor parte do dia);<br>
-➤Passear com meu cachorro (Bethoven lindo);<br>
-➤Escutar músicas (F song e Freaks são minhas favoritas);<br>
-➤Em progresso (atualizando...);<br>
+➤Ainda em construção...<br>
 
 **OUTRAS INFORMAÇÕES...**<br>
 
