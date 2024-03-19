@@ -9,16 +9,7 @@
 
 **HOBBIES...**<br>
 
-➤Ainda em construção...<br>
-
-**OUTRAS INFORMAÇÕES...**<br>
-
-➤Ainda em construção...<br>
-
-
-**STATUS E REDES SOCIAIS...**<br>
-
-➤ Ainda preciso atualizar minhas redes, mas algumas preciso até de idade pra criar (porque Linkedin?)<br>
+➤Estudar, jogar e sair de bicicleta<br>
 
 **CURSO TÉCNICO...**<br>
 
